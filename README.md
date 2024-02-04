@@ -1,5 +1,6 @@
 # Hi there! 👋 I'm Jaseem PK
-![Screenshot 2023-09-18 124626](https://github.com/jaseemabdulla/jaseemabdulla/assets/129880170/f663a806-5a3a-4d5e-aa25-0157d301d744)
+![Screenshot 2023-09-18 124626](https://github.com/jaseemabdulla/jaseemabdulla/assets/129880170/a1b2c8ce-446d-43ca-b554-294812846632)
+
 
 
 ## About Me 👨‍💻
