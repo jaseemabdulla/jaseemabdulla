@@ -1,5 +1,5 @@
 # Hi there! 👋 I'm Jaseem PK
-![LinkedIn-Cover](https://github.com/user-attachments/assets/c4f8120a-825e-485f-b1fe-20d1778540ed)
+
 
 
 
